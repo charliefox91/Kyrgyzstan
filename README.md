@@ -1,0 +1,2 @@
+# Kyrgyzstan
+Trip to Kyrgyzstan
